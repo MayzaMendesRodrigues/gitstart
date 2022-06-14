@@ -21,7 +21,7 @@ Olá familia, eu me chamo Mayza Ynara
  
  🔘 https://www.linkedin.com/in/mayza-ynara-mendes-rodrigues/
  
- 🔘 intagram: @mayzaynara 
+ 🔘 instagram: @mayzaynara 
  
  🔘 Email: mayzamrodrigues@gmail.com
 
